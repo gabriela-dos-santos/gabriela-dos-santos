@@ -1,0 +1,3 @@
+- 👋 Oi! Eu sou @gabriela-dos-santos
+- 👀 Atualmente interessada em Linguagens e Ciências Humanas e Sociais
+- 🌱 Aprendendo progamação
